@@ -18,6 +18,10 @@ And yet, I know that the phrase “Believe in yourself” can sometimes feel emp
 
 I find a spark of inspiration in top athletes like Brace Lee and Eliud Kipchoge, whose lives remind me that the blend of physical strength and inner resolve can create something truly remarkable. Their philosophy of movement is truly captivating. When I check the thought, I suddenly thought  why athletes have more intelligence intensively. The result would correspond the true explanation of knowledge. The knowledge is the way everyone build his life. The role you joined, what did u do in a society and what influence do u want to have are the explicit expression from your knowledge reflected in life. Then, the expression for an athlete is more obvious.
 
+> **“When I have a lot of pain, I try to confuse my mind to forget about the pain and think about the distance. I don't want pain to be in my mind, because I'd really lose focus on running. After winning, you won't have that pain, but it comes later. The marathon is hard; the second day, you don't go up or down stairs.”**
+
+> **“I would like to tell every living soul in the world that anyone can do whatever they want, all they need is to believe and trust in themselves.”**
+
 ![image.png](https://cdn.statically.io/gh/stoneBuild29/MyPictures@main/upload/image.png)
 
 > **You must be shapeless, formless, like water. When you pour water in a cup, it becomes the cup. When you pour water in a bottle, it becomes the bottle. When you pour water in a teapot, it becomes the teapot. Water can drip and it can crash. Become like water my friend.**
