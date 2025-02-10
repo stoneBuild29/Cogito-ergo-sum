@@ -1,0 +1,1 @@
+![Ludwig Wittgenstein - Wikipedia](https://cdn.statically.io/gh/stoneBuild29/MyPictures@main/upload/Ludwig_Wittgenstein_1929.jpg)
