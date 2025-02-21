@@ -4,6 +4,3 @@
 
 Having said so much,  Let’s look at history. From which line and page can you find the record of the Savior’s salvation? No, never. It has always been those who save others  are saved, and those who are saved save others.
 
-
-
-![](https://cdn.statically.io/gh/stoneBuild29/MyPictures@main/upload/202502211958427.png)
