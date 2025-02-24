@@ -20,10 +20,6 @@ The core plays a crucial role in achieving balance, strength, and fluidity in yo
 
 202-Tramu and Generational Transfer
 
-203-The Essence of Poverty
-
-204-How to Think as an Athlete
-
 
 
 **Core**
