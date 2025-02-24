@@ -4,30 +4,28 @@ When I practice swimming, there are a few things that need refinement. My hand p
 
 The core plays a crucial role in achieving balance, strength, and fluidity in your movements. When your core is engaged properly, it stabilizes  your body and allows for smoother stokes, more efficient breathing, and better overall control. Without a solid core, your body tends to break apart during the movement, making it harder to glide through the water with minimal resistance."
 
-Phenomenon:
-
-[The Interplay Between](https://github.com/stoneBuild29/Cogito-ergo-sum/blob/main/The Interplay Between Emotional Support and Learning.md) 
-
-[The Essence of Learning.md](https://github.com/stoneBuild29/Cogito-ergo-sum/blob/main/The Essence of Learning.md)
 
 
+**Phenomenon**
 
-Explanation:
+101-The Interplay Between Emotional Support and Learning
 
-[Understanding My Trauma.md](https://github.com/stoneBuild29/Cogito-ergo-sum/blob/main/Understanding My Trauma.md)
-
-[Tramu and Generational Transfer.md](https://github.com/stoneBuild29/Cogito-ergo-sum/blob/main/Tramu and Generational Transfer.md)
+102-The Essence of Learning
 
 
 
-Core
+**Explanation**
 
-[The limits of my language mean the limits of my world.md](https://github.com/stoneBuild29/Cogito-ergo-sum/blob/main/The limits of my language mean the limits of my world.md)
+201-Understanding Musk's Trauma: A Long-Overdue Observe-Dialogue
 
-[Cultural Attribution and Personal Fate.md](https://github.com/stoneBuild29/Cogito-ergo-sum/blob/main/Cultural Attribution and Personal Fate.md)
+202-Tramu and Generational Transfer
 
 
 
-Just kidding:
+**Core**
 
-[Roast Everyday](https://github.com/stoneBuild29/Cogito-ergo-sum/blob/main/Roast Everyday.md)
+301-The limits of my language mean the limits of my world
+
+302-Cultural Attribution and Personal Fate
+
+

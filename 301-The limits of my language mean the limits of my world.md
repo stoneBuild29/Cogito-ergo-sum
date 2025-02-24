@@ -1,0 +1,17 @@
+![Ludwig Wittgenstein - Wikipedia](https://cdn.statically.io/gh/stoneBuild29/MyPictures@main/upload/Ludwig_Wittgenstein_1929.jpg)
+
+In fact, I want to talk about the difference between native and non-native languages.  The idea came to me while I was in a taxi, on my way to meet my psychological counselor. I felt a sense of relief about sth, and that's when the thought struck me, so I took notes.
+
+The origin of this topic is a French writer who insisted on wiriting her works on English and refused to let them be translated into French. The personality in her writing is distinct from the one she has in French. She uses language  as a tool to shield herself from political scrutiny.(to be continued
+
+Unfortunately, she has two sons, both of whom committed suicide. There was  shocking news on French social media that labeled her as "evil". I tried reading her books last year, and honestly,  my mind felt fragile after doing so. The atmoshpere in her writing — gloomy, sad and melancholic — was unbearable for me. After I put the book down, I even had thoughts of harming myself.
+
+Recently, I revisited this book and reread othe first few chapters. Gradually, I began to understand what she was trying to express and how she felt. There was also a strange coincidence: the children in this book share the sam fate as her real-life children. It gave me chills. Aa a result, I've started wondering: Is she writing about her fate, or is her experience shaping her words?
+
+Gustav said, "My life is a story of unconscious self-realization". Being invloved in the past doesn't really matter, except that makes one feel special. This is a rare experience in a non - personal society. Unique experiences often lead to the great literature, but they aren't the best nourishment for real life.If someone chooses to see trauma as foundation of her life, their life might become full of hesitation.
+
+Trauma often shapes the way we live and how we express ourselves, especially in literature. Many writers channel their personal pain and struggle into their work, using words to process and externalize their emotions. However, there is a fine line between allowing to shape creativity and allowing it to dominate one's life. When trauma becomes the foundation of ones's existence, it can cloud perception and hinder personal growth. Yet, for some writers, trauma is a powerful tool, an endless source of raw emotion and experience that fuels their creativity. Through writing, they are able to make sense of the chaos and find meaning in their suffering. The writer's unique experience can transcend personal pain, creating working that resonate with others who have faced familiar struggles. However, if a person constantly revisits trauma without seeking healing or growth, they may find themselves trapped in the past, unable to move forward. The challenge lies in finding balance — using trauma to create and understand, but not letting it define on's life completely.
+
+
+
+The meeting of two personalities is like the contact of two chemical substances: if there is any reaction, both are transformed.
