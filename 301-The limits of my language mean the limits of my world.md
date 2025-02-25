@@ -10,8 +10,5 @@ Recently, I revisited this book and reread othe first few chapters. Gradually, I
 
 Gustav said, "My life is a story of unconscious self-realization". Being invloved in the past doesn't really matter, except that makes one feel special. This is a rare experience in a non - personal society. Unique experiences often lead to the great literature, but they aren't the best nourishment for real life.If someone chooses to see trauma as foundation of her life, their life might become full of hesitation.
 
-Trauma often shapes the way we live and how we express ourselves, especially in literature. Many writers channel their personal pain and struggle into their work, using words to process and externalize their emotions. However, there is a fine line between allowing to shape creativity and allowing it to dominate one's life. When trauma becomes the foundation of ones's existence, it can cloud perception and hinder personal growth. Yet, for some writers, trauma is a powerful tool, an endless source of raw emotion and experience that fuels their creativity. Through writing, they are able to make sense of the chaos and find meaning in their suffering. The writer's unique experience can transcend personal pain, creating working that resonate with others who have faced familiar struggles. However, if a person constantly revisits trauma without seeking healing or growth, they may find themselves trapped in the past, unable to move forward. The challenge lies in finding balance — using trauma to create and understand, but not letting it define on's life completely.
+ 
 
-
-
-The meeting of two personalities is like the contact of two chemical substances: if there is any reaction, both are transformed.
