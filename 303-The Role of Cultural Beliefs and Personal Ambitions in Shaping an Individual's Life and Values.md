@@ -1,8 +1,6 @@
 The Role of Cultural Beliefs and Personal Choice in Shaping an Individual's Life and Values
 
-![Chinese Pupils' Good Fortune Is Multiplied](https://cdn.statically.io/gh/stoneBuild29/MyPictures@main/upload/021291_360W.png)
-
-![img](https://cdn.statically.io/gh/stoneBuild29/MyPictures@main/upload/03oly-eileengu1-articleLarge.jpg)
+![不同的教育故事中折射出东西方文化的差异- 自我调节- 走进心理学- 天天心理网- 专业的心理学在线学习平台](https://cdn.statically.io/gh/stoneBuild29/MyPictures@main/upload/160029d66724335014.jpg%3F6.12.jpeg)
 
 > Writing criteria:
 >
