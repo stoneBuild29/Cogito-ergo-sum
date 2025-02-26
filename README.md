@@ -12,6 +12,8 @@ The core plays a crucial role in achieving balance, strength, and fluidity in yo
 
 102-The Essence of Learning
 
+103-Id, ego, superego and others' expectations
+
 
 
 **Explanation**
