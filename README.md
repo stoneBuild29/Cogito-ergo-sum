@@ -4,6 +4,12 @@ When I practice swimming, there are a few things that need refinement. My hand p
 
 The core plays a crucial role in achieving balance, strength, and fluidity in your movements. When your core is engaged properly, it stabilizes  your body and allows for smoother stokes, more efficient breathing, and better overall control. Without a solid core, your body tends to break apart during the movement, making it harder to glide through the water with minimal resistance."
 
+There is a profound question — I believe I have enough intelligence to change myself, but it's still a big question that comes from within, extending to the outside world. I don't blame anyone, but I must reflect on my origins — who am I, where do I come from, why am I here, and where am I headed?
+
+![img](https://cdn.statically.io/gh/stoneBuild29/MyPictures@main/upload/p2540991276.webp)
+
+
+
 
 
 **Phenomenon**
