@@ -26,7 +26,7 @@ I have many time to think about: the gap between the rich and the poor and why i
 >
 > Interpretation: while over the last two decades global inequalities between countries have declined, income inequality has increased within most countries. The average income gap between the top 10% and bottom 50% of individuals within countries has almost doubled across that time period, the report found.
 >
-> ![CleanShot 2025-02-26 at 19.27.39@2x](https://cdn.statically.io/gh/stoneBuild29/MyPictures@main/upload/CleanShot%202025-02-26%20at%2019.27.39%402x.png)
+> ![CleanShot 2025-02-26 at 20.05.38@2x](https://cdn.statically.io/gh/stoneBuild29/MyPictures@main/upload/CleanShot%202025-02-26%20at%2020.05.38%402x.png)
 >
 > The importance of between-country inequality in overall global inequality, as measured by the Theil index, rose between 1820 and 1980 and strongly declined since then. In 2020, between-country inequality makes-up about a third of global inequality between individuals. The rest is due to inequality within countries. Income is measured per capita after pension and unemployment insurance transfers and before income and wealth taxes.
 
