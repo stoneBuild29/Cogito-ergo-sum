@@ -32,6 +32,8 @@ The core plays a crucial role in achieving balance, strength, and fluidity in yo
 
 302-Cultural Attribution and Personal Fate
 
+303-The Role of Cultural Beliefs and Personal Choice in Shaping an Individual's Life and Values
+
 
 
 **Travel**
@@ -41,5 +43,4 @@ The core plays a crucial role in achieving balance, strength, and fluidity in yo
 402-European Journey
 
 403-African Natual Tour
-
 
