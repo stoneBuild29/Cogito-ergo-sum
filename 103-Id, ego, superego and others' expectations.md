@@ -8,4 +8,4 @@
 >
 > The super-ego sayssays: "My 'ego' is perfect." The id, throughthrough others' words, sayssays: "YourYour 'ego' is worthless." The super-ego: "DefensiveDefensive breach! I must eithereither lovelove youyou or attack youyou, to makemake youyou admit that I am rightright, and youyou areare wrongwrong." The other person is not present.
 
-I dont get the meaning, but have the same understand about the things. It's a so huge  lesson and to be continued. And I know the key to solve the question is that "**Be honest with yourself**".
+I dont get the meaning, but have the same understand about the things. It's a so huge  lesson and to be continued. And I know the key to solve the question is that "**Be honest with yourself**". Facing oneself is so difficult, so it's so usual that I make sure my existence by any others.
