@@ -26,9 +26,11 @@ I have many time to think about: the gap between the rich and the poor and why i
 >
 > Interpretation: while over the last two decades global inequalities between countries have declined, income inequality has increased within most countries. The average income gap between the top 10% and bottom 50% of individuals within countries has almost doubled across that time period, the report found.
 >
-> ![CleanShot 2025-02-26 at 20.05.38@2x](https://cdn.statically.io/gh/stoneBuild29/MyPictures@main/upload/CleanShot%202025-02-26%20at%2020.05.38%402x.png)
->
 > The importance of between-country inequality in overall global inequality, as measured by the Theil index, rose between 1820 and 1980 and strongly declined since then. In 2020, between-country inequality makes-up about a third of global inequality between individuals. The rest is due to inequality within countries. Income is measured per capita after pension and unemployment insurance transfers and before income and wealth taxes.
+>
+> ![](https://cdn.statically.io/gh/stoneBuild29/MyPictures@main/upload/CleanShot%202025-02-26%20at%2020.05.38%402x.png)
+>
+> Growth rates among the poorest half of the population were between 3% and 4% per year, between 1995 and 2021. Since this group started from very low wealth levels, its absolute levels of growth remained very low. The poorest half of the world population only captured 2.3% of overall wealth growth since 1995. The top 1% benefited from high growth rates (3% to 9% per year). This group captured 38% of total wealth growth between 1995 and 2021. Net household wealth is equal to the sum of financial assets and non-financial assets, net of their debts.
 
 People often need motivation to keep going. If someone runs, they might keep running consistently. However, most people living in poverty don't have initial capital or assets. They own nothing and must sell their labor. In this situation, they have to exchange their physical strength for money, but it's hard to trade time and effort for a fair reward.
 
