@@ -20,6 +20,8 @@ There is a profound question — I believe I have enough intelligence to change 
 
 103-Id, ego, superego and others' expectations
 
+104-Wang Yangming
+
 
 
 **Explanation**
